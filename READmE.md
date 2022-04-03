@@ -1,0 +1,1 @@
+[Link do Figma usado para os layouts de estudo](https://www.figma.com/file/0or4YYFyN6Ip6gFTA00UJ1/%5Bfree%5Danime-Poster-Web-page-layout-%E5%8A%A8%E6%BC%AB%E6%B5%B7%E6%8A%A5%E7%B3%BB%E5%88%97-(Community)?node-id=3%3A3)
